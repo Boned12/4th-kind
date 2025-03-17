@@ -1,0 +1,60 @@
+I watched the last stone leave my hand, gracing the water with a simple dive, free of confusion. My love long past deserved contemplation never concentration.  
+“Am I cable of rest”  
+Knowing well sleeping at the time were sinful  
+“Maybe a break will do us well”  
+knowing my heart had fallen ill and her Rhythm  
+dragged me down past the waves   
+My hand tight   
+Just to crash. She muted her symbol
+
+The path was wide enough to fit four men,  
+Ten of my size.  
+Yet  
+those dimples took their place,  
+blurred lines   
+and space   
+became indivisible.   
+bloodshot she held face   
+“Let her be mine and i'll be alright, simple”   
+but my sound ached for a living   
+My mind like her body  
+Would sway and shake   
+thighs wide ,shut, and me stuck in the middle.  
+Our steps closed only on the fifth  
+Her eyes bounced around this inlet  
+managed to catch me adrift.  
+***I had ne’er seen anyone walk like that***   
+***, neither drunk nor sober.***  
+eyes that told tales long and shroud  
+I watched her spin   
+rotate her lips  
+“WHERE to rockerboy” she passed  
+and i failed to keep on going  
+Stuck like a dog to her hip.  
+I tried to give her a bit   
+“Here and there, honestly all around”,  
+“Oh up and down, stuck in town”   
+I let it slip   
+The sort of laughter that made your soul   
+feel a chip, how much of her  
+Was this?   
+Say, if we worked together   
+I would wonder why people didn't tip.
+
+“You play?” my heart just finished a clip  
+Beating like bongos, my music, our type of shit.  
+She said “Let me tell you this,  
+You sound like rain  
+ in the okavango  
+passionate and sick”  
+“I don't know much about those plains, but   
+I admire your riff  
+To me the words you lift   
+Are too sweet to be leftover   
+Rain comes some days  
+But you, the Heat   
+reign all over”   
+A queen if i ever met one   
+A scene if i ever set one  
+Novel, Some reading i'll never get  
+Done.
